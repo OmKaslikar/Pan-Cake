@@ -1,0 +1,2 @@
+Recipie:- 
+First take a big bowl and a seive. Pour MAIDA, SUGAR, MILKPOWDER, HONEY, BAKING SODA, BAKING POWDER, VANILLA ESSENCE into the bowl from the seive in the order they are wriiten. Product left in seive must be grinded before adding into the mixture. Then add MILK to the mixture to obtain a ribbon consistency in the batter. Heat a pan on medium temperature for sometime. Then add one spoonful of oil into it. Pour one big spoon of mixture after it. Heat it from both sides for 1 minutes on low flame. Serve hot with BUTTER. 
